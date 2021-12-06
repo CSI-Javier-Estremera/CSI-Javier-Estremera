@@ -17,9 +17,9 @@
 ### Procedimiento: 
 - Mezcla la harina de arroz, la sal y el azúcar. Añade la leche poco a poco y mezcla bien
 
--Agrega la cascarita de limón y cuece a fuego lento moviendo constantemente y en una sola dirección. 
+- Agrega la cascarita de limón y cuece a fuego lento moviendo constantemente y en una sola dirección. 
 
--Finalmente, sirve en moldes y espolvorea con canela. ¡Buen provecho!
+- Finalmente, sirve en moldes y espolvorea con canela. ¡Buen provecho!
 
 #### Referencias: 
 -https://www.sabrosia.pr/recetas/2020/12/02/receta-majarete-mas-delicioso-navidad.html
