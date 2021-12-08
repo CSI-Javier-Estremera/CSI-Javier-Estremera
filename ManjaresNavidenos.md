@@ -1,5 +1,10 @@
+<div align="center">
+<img src= "https://www.top10puertorico.com/wp-content/uploads/2018/12/maxresdefault-3-1.jpg" width= "800" height= "374"  />
+
 # *Manjares Navidenos* 🎄
 ## *Manjaretes*
+
+</div>
 
 ### Ingredientes:  
 - 🍚*3/4* taza de harina de arroz
