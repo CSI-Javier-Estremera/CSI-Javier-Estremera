@@ -3,15 +3,15 @@
 ![image](https://user-images.githubusercontent.com/95309378/144904702-2550d6b3-22df-40e2-9446-65c4d5df21a7.png)
 
 ### Ingredientes:  
-- 🍚3/4 taza de harina de arroz
+- 🍚*3/4* taza de harina de arroz
 
-- 🧂 1 ½ cucharada de sal
+- 🧂 *1 ½* cucharada de sal
 
-- 🍠3/4 taza de azúcar
+- 🍠*3/4* taza de azúcar
 
-- 🥛 1 litro de leche
+- 🥛 *1* litro de leche
 
-- 🍋 1 cáscara de limón 
+- 🍋 *1* cáscara de limón 
 
 - canela en polvo
 ### Procedimiento: 
