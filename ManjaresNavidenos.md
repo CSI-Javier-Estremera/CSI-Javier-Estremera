@@ -1,5 +1,5 @@
-# Manjares Navidenos 🎄
-## Manjaretes
+# *Manjares Navidenos* 🎄
+## *Manjaretes*
 ![image](https://user-images.githubusercontent.com/95309378/144904702-2550d6b3-22df-40e2-9446-65c4d5df21a7.png)
 
 ### Ingredientes:  
