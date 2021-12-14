@@ -29,5 +29,8 @@
 
 6. Finalmente, sirve en moldes y espolvorea con canela. ¡Buen provecho!
 
+### Video:
+-https://www.youtube.com/watch?v=gE2kl-pPF-I
+
 ### Referencias: 
 -https://www.sabrosia.pr/recetas/2020/12/02/receta-majarete-mas-delicioso-navidad.html
